@@ -1,1 +1,1 @@
-# Tend-ncia-sazonalidade-res-duos
+# Tendência-sazonalidade-resíduos
